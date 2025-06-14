@@ -1,0 +1,1 @@
+# crm-application-for-jewel-management-LTVIP2025TMID29648
